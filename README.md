@@ -1,1 +1,0 @@
-# manuellaschmidt.github.io
